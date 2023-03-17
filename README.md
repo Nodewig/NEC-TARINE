@@ -1,3 +1,0 @@
-# NEC-TARINE
-
-bonjour
